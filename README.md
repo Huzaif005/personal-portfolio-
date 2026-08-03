@@ -1,4 +1,4 @@
-# 🚀 Huzefa Patel — AI-Powered Personal Portfolio & Arcane AI
+# 🚀 Ujepa Patel — AI-Powered Personal Portfolio & Arcane AI
 
 <div align="center">
 
